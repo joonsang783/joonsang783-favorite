@@ -7,4 +7,4 @@
 ### 반갑습니다
 #### 어서오세요
 ![Alt text](https://img.hankyung.com/photo/201906/2019061915415919454-540x809.jpg)
-[![](https://file.mk.co.kr/meet/neds/2018/08/image_readtop_2018_533198_15351104613434707.jpg)](https://youtu.be/cbmFZvsyVKU)
+[![](https://cdn.gamemeca.com/data_center/209/927/20200306131429.jpg)](https://youtu.be/cbmFZvsyVKU)
